@@ -1,37 +1,39 @@
-## Welcome to GitHub Pages
+## 导航导航
 
-You can use the [editor on GitHub](https://github.com/spltjz/spltjz.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
+porn dude [porn dude](https://theporndude.com/) 
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+javlibrary [Javlibrary](https://www.javlibrary.com/cn/) 
 
-### Markdown
+javBD [JavBD](https://javdb36.com/) 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+IAFD [IAFD](https://www.iafd.com/)  西方全检索
+
+piratecames [priatecams](https://piratecams.com/)  西方of自制部分检索
+
+西方大厂爬虫检索 [altbabes](http://altbabes.net/)  西方部分检索
+
+西方大厂爬虫检索2 [altbabes](https://risquesluts.com/)  西方部分检索2
+
+胶sm [empress-empire](https://www.empress-empire.com/)  
+
+newestxxx [Newestxxx](https://newestxxx.com/)  
+
+
+### 工具
+
+搜图 [yandex](https://yandex.com/)  
 
 ```markdown
-Syntax highlighted code block
 
-# Header 1
-## Header 2
-### Header 3
+xixi
+xixi
 
-- Bulleted
-- List
 
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
 ```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
 
 ### Jekyll Themes
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/spltjz/spltjz.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
+xixi
 ### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+Hxixi
