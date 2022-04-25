@@ -18,6 +18,8 @@ piratecames [priatecams](https://piratecams.com/)  西方of自制部分检索
 
 newestxxx [Newestxxx](https://newestxxx.com/)  
 
+西方检索 [xmoviesforyou](https://xmoviesforyou.com/)
+
 
 ### 工具
 
