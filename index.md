@@ -25,6 +25,8 @@ newestxxx [Newestxxx](https://newestxxx.com/)
 
 搜图 [yandex](https://yandex.com/)  
 
+搜锁被封禁的视频 [kaotic](https://www.kaotic.com/) 
+
 ```markdown
 
 搜锁被封禁的视频 [kaotic](https://www.kaotic.com/) 
