@@ -20,7 +20,9 @@ newestxxx [Newestxxx](https://newestxxx.com/)
 
 西方检索 [xmoviesforyou](https://xmoviesforyou.com/)
 
-西方检索 [xmoviesforyou](https://pornorips.com/)
+西方检索 [pornrips](https://pornorips.com/)
+
+最新最全 [ydpv](https://yourdailypornvideos.ws/)
 ### 工具
 
 搜图 [yandex](https://yandex.com/)  
